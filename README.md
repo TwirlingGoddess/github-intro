@@ -2,6 +2,6 @@
 lesson plan man
 
 
-this is a collection of screenshots to practice using uploaded photos, used to create a links 
+this is a collection of screenshots to practice using uploaded photos, used to create links 
 
 
