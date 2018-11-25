@@ -2,4 +2,4 @@
 lesson plan man
 
 
-this is a collection of screenshots to 
+this is a collection of screenshots to practice 
