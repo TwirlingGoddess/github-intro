@@ -2,4 +2,4 @@
 lesson plan man
 
 
-this is a collection
+this is a collection of
